@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Annie284
 - 👀 I’m interested in music
 - 🌱 I’m currently learning at Chang Jung Christian University
-- 💞️ I’m looking to collaborate on 
+- 💞️ I’m looking to collaborate on language learning projects
 - 📫 How to reach me 
 - 😄 Pronouns: 
 - ⚡ Fun fact: 
