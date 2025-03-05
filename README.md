@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning at Chang Jung Christian University
 - 💞️ I’m looking to collaborate on language learning projects
 - 📫 How to reach me 
-- 😄 Pronouns: 
+- 😄 Pronouns✈️
 - ⚡ Fun fact: 
 
 <!---
