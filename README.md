@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on language learning projects
 - 📫 How to reach me 
 - 😄 Pronouns✈️
-- ⚡ Fun fact: 
+- ⚡ Fun fact: Baby•Lazy•Crazy
 
 <!---
 Annie284/Annie284 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
